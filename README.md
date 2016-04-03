@@ -2,4 +2,4 @@
 learning
 
 
-Im screweing aroun d cause Im sick of losing my code when pcs crash
+Im screwing aroun d cause Im sick of losing my code when pcs crash
